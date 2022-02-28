@@ -1,0 +1,1 @@
+# Toplam Kalite Yönetimi ve 6 Sigma Karşılaştırma Raporu
